@@ -1,0 +1,6 @@
+# PCA_17-09-2025
+Nombre: Pascual Chapol Alexander
+Grado y grupo: 3-D
+Especialidad: Programacion
+Correo: 24308060610056@cetis61.edu.mx
+
